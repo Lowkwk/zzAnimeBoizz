@@ -1,2 +1,2 @@
 # zzAnimeBoizz
-Dam join it now 
+Dam join it now.
